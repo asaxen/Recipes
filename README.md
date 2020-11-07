@@ -1,2 +1,2 @@
 # Recipes
-My ever-changing food recipes
+Food recipes worth saving
