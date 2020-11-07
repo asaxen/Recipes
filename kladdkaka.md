@@ -12,11 +12,11 @@
 
 ## Steps
 
-1. Turn the oven to 175 degress celsius
-2. Whisk egg, sugar, vanilla extract
+1. Turn the oven to 175 degrees celsius
+2. Whisk egg, sugar and vanilla extract
 3. Add cacao powder and salt
 4. Melt the butter in a pan and add to mixture
-5. Carefully add flour and baking powder by slowing stiring
-6. Pour mixture into a oven pan
+5. Carefully add flour and baking powder - stir slowly
+6. Pour mixture into an oven pan
 7. Bake in the middle of the oven for 35 minutes
 
